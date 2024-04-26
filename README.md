@@ -1,7 +1,7 @@
 # 💫 About Me:
-> I Am Business Analyst Enthusiastic
-> I'm currently lokking job
-> Reach out to me at @pavipavankumar908@gmail.com
+I Am Business Analyst Enthusiastic
+I'm currently lokking job
+Reach out to me at @pavipavankumar908@gmail.com
 
 
 ## 🌐 Socials:
