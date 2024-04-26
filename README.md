@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 I'm Pavan Kumar T
 
 I Am Business Analyst Enthusiastic
 
