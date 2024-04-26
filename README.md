@@ -2,7 +2,7 @@
 
 I Am Business Analyst Enthusiastic
 
-I'm currently lokking job
+I'm currently looking job
 
 Reach out to me at @pavipavankumar908@gmail.com
 
