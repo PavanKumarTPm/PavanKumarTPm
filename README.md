@@ -6,7 +6,7 @@ I'm currently looking job
 
 Reach out to me at @pavipavankumar908@gmail.com
 
-
+my resume https://drive.google.com/file/d/1kWrx4HizKiT8XLHegBp4sOzL3HTiRZ2r/view?usp=drivesdk
 
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/Rocking Pavan) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/psycho_master__07) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/pavan-kumar-t-0702pm) 
