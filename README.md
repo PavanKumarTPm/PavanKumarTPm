@@ -4,8 +4,6 @@ I Am Business Analyst Enthusiastic
 
 I'm currently looking job
 
-My Resume https://drive.google.com/file/d/1zFcw0TEl8YWdzi7hSfV-LB2ENeAYI94k/view?usp=drivesdk
-
 Reach out to me at @pavipavankumar908@gmail.com
 
 my resume https://drive.google.com/file/d/1kWrx4HizKiT8XLHegBp4sOzL3HTiRZ2r/view?usp=drivesdk
